@@ -1,0 +1,1 @@
+# comp_equality_index_2022
